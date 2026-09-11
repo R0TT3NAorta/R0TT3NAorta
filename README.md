@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-  <a href="https://github.com/0RGANCEST">
+  <a href="https://github.com/G0reology">
     <img src="https://img.shields.io/badge/MAIN-FFEE8C?style=for-the-badge&logo=github&logoColor=white">
 
 <p align="center">
