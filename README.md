@@ -10,4 +10,4 @@
 <img width="736" height="924" alt="Haikyuu!" src="https://github.com/user-attachments/assets/c1ee441b-64d7-4ee6-a015-f246d6d26577" />
 </p>
 <p align="center">
-ANTISOCIAL, Not interested in socialising currently. both on main and alts
+Iwc pls we are not friendly/willing to int usually since most of us are above 18
