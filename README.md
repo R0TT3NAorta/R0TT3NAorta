@@ -1,7 +1,4 @@
-<p align="center"
-![](https://komarev.com/ghpvc/?username=R0TT3NAortay&color=000000&style=plastic&label=alternates)　 $${\color{#f2f2f2} with　broken　flesh　and　contorted　bones　. . .}$$
-</p>
-
+Work in progress
 
 <p align="center">
   <a href="https://github.com/G0reology">
