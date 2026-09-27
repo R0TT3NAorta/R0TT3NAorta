@@ -1,9 +1,7 @@
-<p align="center">
-  <img src="https://komarev.com/ghpvc/?username=R0TT3NAorta&color=FFEE8C&label=Gaymers&style=upper" alt="Vamps Counter" />
-</p> 
-$${\color{#FFEE8C} your love is medicinal and im a sick patient　. . .}$$
-
+<p align="center"
+![](https://komarev.com/ghpvc/?username=R0TT3NAortay&color=000000&style=plastic&label=alternates)　 $${\color{#f2f2f2} with　broken　flesh　and　contorted　bones　. . .}$$
 </p>
+
 
 <p align="center">
   <a href="https://github.com/G0reology">
