@@ -1,6 +1,7 @@
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=R0TT3NAorta&color=FFEE8C&label=Gaymers&style=upper" alt="Vamps Counter" />
-</p>  $${\color{#FFEE8C} your love is medicinal and im a sick patient　. . .}$$
+</p> 
+$${\color{#FFEE8C} your love is medicinal and im a sick patient　. . .}$$
 
 </p>
 
