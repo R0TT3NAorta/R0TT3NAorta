@@ -1,6 +1,6 @@
 Work in progress
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=R0TT3NAorta&color=000000&label=ficts&style=upper" alt="Vamps Counter" />
+  <img src="https://komarev.com/ghpvc/?username=R0TT3NAorta&color=000000&label=souls&style=upper" alt="Vamps Counter" />
 </p>
 
 
