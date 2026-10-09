@@ -10,7 +10,9 @@ Work in progress
     <img src="https://img.shields.io/badge/Host-000000?style=for-the-badge&logo=github&logoColor=white">
 
 
-<img height="150" alt="image" src="https://github.com/user-attachments/assets/23547285-9134-46f1-a03c-834a9f9da91c" href="https://git.io/typing-svg"> ⇀‸↼‶ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cherry+Bomb+One&pause=1000&color=6D558F&width=200&lines=ure+in+my+world+now" alt="Typing SVG" /></a><img height="160" alt="image" src="https://github.com/user-attachments/assets/6d889ec9-f48e-4817-a691-ee0cb6dc8953" /> ˶˃ᆺ˂˶  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cherry+Bomb+One&pause=1000&color=2D9099&width=75&lines=as+u+are" alt="Typing SVG" /></a> 
- </a><img height="160" alt="image" src="https://github.com/user-attachments/assets/04e99924-72df-4ec7-a617-44134ea5b5d4" /><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cherry+Bomb+One&pause=1000&color=ED83AA&width=100&lines=its+only+us" alt="Typing SVG" /></a> ,,>﹏<,, <p align="center">๑˘︶˘๑
+<img height="150" alt="image" src="https://github.com/user-attachments/assets/c2371918-0547-4286-9e48-2d3e69db3ca3" href="https://git.io/typing-svg"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=ZCOOL+KuaiLe+One&pause=1000&color=000000&width=200&lines=The+real+real+real+mе" alt="Typing SVG" /></a><img height="160" alt="image" src="https://github.com/user-attachments/assets/0d245529-435c-4994-8192-f161f819061a" />  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=ZCOOL+KuaiLe+One&pause=1000&color=000000&width=75&lines=Isn't+made+of+love+and+dreams" alt="Typing SVG" /></a> 
+ </a><img height="160" alt="image" src="https://github.com/user-attachments/assets/7847cbcb-96d5-4678-9c96-dd44eb57674b" /><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=ZCOOL+KuaiLe+One&pause=1000&color=000000&width=100&lines=That's+right,+I'm+madе+of+meat" alt="Typing SVG" /></a> 
 
+
+ 
 
