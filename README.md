@@ -12,4 +12,4 @@ Work in progress
 
 
 <p align="center">
-<img width="200" height="84" alt="1" src="https://github.com/user-attachments/assets/27934599-30d0-45dc-a1ba-1735fd1f439d" />
+<img width="412" height="415" alt="11" src="https://github.com/user-attachments/assets/777192b9-a99e-4fb9-8cdf-897fed800e4e" />
